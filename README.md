@@ -1,2 +1,2 @@
 # hello-world
-first git hub project
+My name is sikhumbuzo xaba, aka, Mr. X. X emanate from my surname
